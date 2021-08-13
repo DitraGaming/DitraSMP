@@ -1,0 +1,2 @@
+# DitraSMP
+No Cheat
